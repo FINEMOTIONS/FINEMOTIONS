@@ -1,2 +1,1 @@
-this is us :3 if u even care >_<!!
-<img src="https://www.image2url.com/r2/default/images/1778590314623-753d7eb8-f405-4be6-a787-bbd2b435c459.jpg" alt="image" />
+<img src="https://www.image2url.com/r2/default/gifs/1779236767639-44b2f727-27b9-4848-82ea-44ba2124f330.gif" width="100" > 
